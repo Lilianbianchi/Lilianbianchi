@@ -3,4 +3,5 @@
 - 📚 Estou no 3° ano do Ensino Médio
 - 👣 Tenho 17 anos
 - 💭 Conhecimento em Alura, Scracth, P5 e informática
-- 🥳 Gosto de dançar e sair com os amigos 
+  ✉️00001106432666sp@aluno.educacao.sp.gov.br
+  🍇@lisantxxz 
